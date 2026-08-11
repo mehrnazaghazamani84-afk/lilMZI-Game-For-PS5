@@ -1,1 +1,1 @@
-# lilMZI-Game-For-PS5
+# lilMZI-Game-For-PS2
